@@ -1,2 +1,0 @@
-# shreyasonawane.com
-personal-website
